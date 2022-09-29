@@ -1,1 +1,1 @@
-# Min mega seje historie
+# Min ultra seje historie
